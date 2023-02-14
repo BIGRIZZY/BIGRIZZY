@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BIGRIZZY
 - 👀 I’m interested in tech
 - 🌱 I’m currently learning software engineering 
-- 💞️ I’m looking to collaborate on bright minds all over the worle
+- 💞️ I’m looking to collaborate on bright minds all over the world
 - 📫 How to reach me ...
 
 You definetely can reach through :+2349058669385
